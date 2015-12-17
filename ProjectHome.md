@@ -1,0 +1,1 @@
+this softweare i made for those who have no pc.who need graphics like pc.it realy looks like windows xp.i will make win7,linux.mac os interface later.
